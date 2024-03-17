@@ -1,4 +1,5 @@
-![image](https://github.com/meetlakhani2502/Interior-Design/assets/163726425/70ed817d-52a6-4843-9a44-9b918fb66109)# Interior-Design
+# Interior-Design
+![image](https://github.com/meetlakhani2502/Interior-Design/assets/163726425/70ed817d-52a6-4843-9a44-9b918fb66109)
 
 ![image](https://github.com/meetlakhani2502/Interior-Design/assets/163726425/eea969e4-5a71-430f-a056-ec6d5f62bdb5)
 
